@@ -1,0 +1,2 @@
+# -Clinical-Case-Studies-Gombe-Health-Data-Sustainable-Healthcare
+# Nursing Research: Gombe State Final year project at College of Nursing Sciences, Gombe.   ### Overview Registered Nurse (RN) analyzing local public health data &amp; evidence-based clinical interventions.  ### Key Work * Clinical Case Studies * Gombe Health Data * Sustainable Healthcare Advocacy  --- *By [Arfakashazu badamasi ] - Future Surgeon*
